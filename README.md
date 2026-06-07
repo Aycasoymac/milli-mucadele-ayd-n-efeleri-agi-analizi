@@ -1,2 +1,2 @@
-# milli-mucadele-ayd-n-efeleri-agi-analizi
+# milli-mucadele-aydin-efeleri-agi-analizi
 Aydın Yöresindeki Yunan İşgalinin Aydın Efelerine Etkisi
